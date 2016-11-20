@@ -79,9 +79,9 @@ Spread a little olive oil on a large rimmed baking sheet, and lay out the cooked
 #### step 6 
  In a 13x9x2-inch casserole or lasagna dish, ladle a cup of sauce and spread it over the bottom of the dish. Arrange one layer of lasagna noodles lengthwise (about 3 long noodles, edge may overlap, depending on your pan) over the sauce. Ladle a third of the remaining sauce over the noodles.
  
- (vvvvv)
+ ![lasagna-method-11-1024x683.jpg](lasagna-method-11-1024x683.jpg)![lasagna-method-12-1024x683.jpg](lasagna-method-12-1024x683.jpg)
  Sprinkle a layer of a third of the grated mozzarella on top of lasagna sauce. Add half of the ricotta cheese, by placing cheese dollops every couple inches. Sprinkle the grated parmesan cheese evenly over the top of ricotta cheese.
- (vvvvv)
+ ![lasagna-method-13-1024x683.jpg](lasagna-method-13-1024x683.jpg) ![lasagna-method-14-1024x683.jpg](lasagna-method-14-1024x683.jpg)
  Apply second layer of noodles, top it with half of the remaining sauce. Add half of the remaining Mozzarella, the remaining ricotta cheese, and another thin sprinkling of Parmesan.
 Finish with another layer of noodles. Spread the remaining sauce over the top layer of noodles and sprinkle with the remaining Mozzarella cheese
 
