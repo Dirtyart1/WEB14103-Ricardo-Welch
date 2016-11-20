@@ -2,7 +2,7 @@ WEB14103-Ricardo-Welch
 
 # Lasagna Recipe
 
-![lasagna-horiz-a-2000.jpg](https://github.com/Dirtyart1/WEB14103-Ricardo-Welch/blob/master/lasagna-horiz-a-2000.jpg =50x 10)
+![lasagna-horiz-a-2000.jpg](https://github.com/Dirtyart1/WEB14103-Ricardo-Welch/blob/master/lasagna-horiz-a-2000.jpg =100x 10)
 
 ##### Prep time: 15 mins     Cooking time: 1hr 30mins     Serves: 8
 
