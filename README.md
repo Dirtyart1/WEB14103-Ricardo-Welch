@@ -50,16 +50,17 @@ WEB14103-Ricardo-Welch
 #### step 1 
 Put a large pot of salted water (1 Tbsp salt for every 2 quarts of water) on the stovetop on high heat. It can take a while for a large pot of water to come to a boil (this will be your pasta water), so prepare the sauce in the next steps while the water is heating.
 ![lasagna-method-1-1024x683.jpg](lasagna-method-1-1024x683.jpg) ![lasagna-method-2-1024x683.jpg](lasagna-method-2-1024x683.jpg)
+
 #### step 2 
 In a large skillet heat 2 teaspoons of olive oil on medium high heat. Add the ground beef and cook it until it is lightly browned on all sides.
-(vvvvv)
+![lasagna-method-3-1024x683.jpg](lasagna-method-3-1024x683.jpg) ![lasagna-method-4-1024x683.jpg](lasagna-method-4-1024x683.jpg)
  Remove the beef with a slotted spoon to a bowl. If there is more than a tablespoon of fat left in the pan (there shouldn't be if you are using lean ground beef) remove it from the pan.
  
 #### step 3 
 Add the diced bell pepper and onions to skillet (in the photo we are using yellow bell pepper and red onions).
 Cook for 4 to 5 minutes, until the onions are translucent and the peppers softened. Add the minced garlic and cook half a minute more.
 Return the browned ground beef to the pan. Stir to combine, reduce the heat to low and cook for another 5 minutes.
-(vvvvv)
+![lasagna-method-5-1024x683.jpg](lasagna-method-5-1024x683.jpg)
 
 #### step 4 
 Transfer the beef pepper onion mixture to a medium sized (3 to 4 quart) pot. Add the crushed tomatoes, tomato sauce, and tomato paste to the pot.
