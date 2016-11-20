@@ -60,20 +60,20 @@ In a large skillet heat 2 teaspoons of olive oil on medium high heat. Add the gr
 Add the diced bell pepper and onions to skillet (in the photo we are using yellow bell pepper and red onions).
 Cook for 4 to 5 minutes, until the onions are translucent and the peppers softened. Add the minced garlic and cook half a minute more.
 Return the browned ground beef to the pan. Stir to combine, reduce the heat to low and cook for another 5 minutes.
-![lasagna-method-5-1024x683.jpg](lasagna-method-5-1024x683.jpg)![lasagna-method-6-1024x683.jpg](lasagna-method-6-1024x683.jpg)
+![lasagna-method-5-1024x683.jpg](lasagna-method-5-1024x683.jpg)
 
 #### step 4 
 Transfer the beef pepper onion mixture to a medium sized (3 to 4 quart) pot. Add the crushed tomatoes, tomato sauce, and tomato paste to the pot.
 Add the parsley, oregano, and Italian seasonings, adjusting the amounts to taste. Sprinkle with garlic powder and/or garlic salt, to taste.
 Sprinkle with red or white wine vinegar. Stir in sugar, a tablespoon at a time, tasting after each addition, to taste. (The amount of sugar needed will vary, depending on how acidic the tomatoes are that you are using.)
 Add salt to taste, and note that you will later be adding Parmesan, which is salty.
-![lasagna-method-8-1024x683.jpg](lasagna-method-8-1024x683.jpg) ![lasagna-method-9-1024x683.jpg](lasagna-method-9-1024x683.jpg)
+![lasagna-method-8-1024x683.jpg](lasagna-method-8-1024x683.jpg) 1024x683.jpg)
 
 #### step 5 
 By now the salted water you started heating in step one should be boiling. Add the dry lasagna noodles and cook then per package directions (al dente). (Note noodles may be cooked in advance.)
 Stir often to prevent from sticking. Make sure that water remains at a full rolling boil during the entire cooking to prevent noodles from sticking.
 When ready, drain in a colander and rinse with cool water, gently separating any noodles that may be sticking together.
-![lasagna-method-10-1024x683.jpg](lasagna-method-10-1024x683.jpg)![lasagna-method-11-1024x683.jpg](lasagna-method-11-1024x683.jpg)
+![lasagna-method-10-1024x683.jpg](lasagna-method-10-1024x683.jpg)
 Spread a little olive oil on a large rimmed baking sheet, and lay out the cooked noodles on this sheet, turning them over so that they get coated with a little of the olive oil. This will prevent them from sticking together.
 
 #### step 6 
