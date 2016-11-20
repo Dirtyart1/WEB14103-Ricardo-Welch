@@ -7,7 +7,7 @@ WEB14103-Ricardo-Welch
 
 ### Ingredients 
 
-##### Sauce:
+#### Sauce:
 - olive oil
 - 1 pound lean ground beef
 - Olive oil
@@ -25,14 +25,14 @@ WEB14103-Ricardo-Welch
 - 1 Tbsp to 1/4 cup sugar (to taste, optional)
 - Salt
 
-##### Lasagna:
+#### Lasagna:
 
 - 1/2 lb dry lasagna noodles (requires 9 lasagna noodles - unbroken)
 - 15 ounces Ricotta cheese
 - 1 1/2 lb (24 ounces) Mozzarella cheese, grated or sliced
 - 1/4 lb (4 ounces) freshly grated Parmesan cheese
 
-##### Cooking Utensils:
+#### Cooking Utensils:
 - A large skillet to brown the beef, bell pepper, and onion
 - A large pot (8 to 12-quarts) for cooking the pasta
 - A medium sized pot (3 to 4 quarts) to simmer the sauce
