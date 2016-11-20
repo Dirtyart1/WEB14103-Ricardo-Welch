@@ -49,7 +49,7 @@ WEB14103-Ricardo-Welch
 
 #### step 1 
 Put a large pot of salted water (1 Tbsp salt for every 2 quarts of water) on the stovetop on high heat. It can take a while for a large pot of water to come to a boil (this will be your pasta water), so prepare the sauce in the next steps while the water is heating.
-
+![lasagna-method-1-1024x683.jpg](lasagna-method-1-1024x683.jpg) ![lasagna-method-2-1024x683.jpg](lasagna-method-2-1024x683.jpg)
 #### step 2 
 In a large skillet heat 2 teaspoons of olive oil on medium high heat. Add the ground beef and cook it until it is lightly browned on all sides.
 (vvvvv)
